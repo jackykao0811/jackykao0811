@@ -1,4 +1,3 @@
-## Hi there 👋
 ## 高堯楷 Yao-Kai Kao, MD
 
 TCM physician in Taipei. PhD candidate, Institute of Brain Science, National Yang Ming Chiao Tung University (NYCU).
